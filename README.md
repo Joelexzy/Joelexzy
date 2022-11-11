@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Joelexzy
 - 👀 I’m interested in software engineering 
 - 🌱 I’m currently learning software engineering 
-- 💞️ I’m looking to collaborate with anyone is interested in making me grow
+- 💞️ I’m looking to collaborate with anyone who is interested in making me grow
 
 - 📫 How to reach me. Via my email joealexzy31@gmail.com
 
